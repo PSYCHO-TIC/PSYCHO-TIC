@@ -1,6 +1,6 @@
 <div align="center">
 
-![](https://files.catbox.moe/absktr.png)
+![](https://files.catbox.moe/7d309x.png)
 
  [ata](https://mobyte.atabook.org/) sp in the works.
  
