@@ -1,7 +1,7 @@
 <div align="center">
 
-![](https://files.catbox.moe/xrns21.jpeg)
+![](https://files.catbox.moe/absktr.png)
 
- [ata](https://mobyte.atabook.org/) [color my 🎄](https://colormytree.me/2025/01KB98GZ0TR3T0NYCQ6QV0581E) [rentry](https://rentry.co/daycare)
+ [ata](https://mobyte.atabook.org/) sp in the works.
  
  <sub> c*h is oke, cudcomf and touch comf
